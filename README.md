@@ -189,3 +189,5 @@ Hashtags
 
 #MicrobialCycle #CompostCivilization #WaPhilosophy #ThereIsNoWaste #SoilRegeneration #CircularSociety #ClimateRestoration #FoodWasteSolution #PlanetRecovery #EnvironmentalEngineering #NaturalLaw #EcosystemRestoration #CarbonSequestration #ZeroWasteFuture #SustainableCivilization
 
+https://note.com/inchacomusho/n/n1f378fe5744f
+https://note.com/inchacomusho/n/n6b9d7d67484a
